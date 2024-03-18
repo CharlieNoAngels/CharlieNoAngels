@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on 😈
 - 🤔 I’m looking for help with everything.
 - 💬 Ask me about my dogs.
-- 📫 How to reach me: Don't.
+- 📫 How to reach me: Can you?
 - ⚡ Fun fact: I'm not real.
 
